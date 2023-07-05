@@ -10,9 +10,9 @@
 
 - 💬 Ask me about **UI/UX**
 
-- 📫 How to reach me :**sumit123kandel@gmail.com**
+- 📫 How to reach me :   **sumit123kandel@gmail.com**
 
-- ⚡ Fun fact :**still thinking about my funfact**
+- ⚡ Fun fact :   **still thinking about my funfact**
 
 <hr><h3 align="center">Connect with me:</h3>
 <p align="center">
